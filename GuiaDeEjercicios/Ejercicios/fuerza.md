@@ -45,3 +45,18 @@ Repite el ciclo durante 15-20 minutos, ajustando el peso según tu capacidad.
 3. Enfriamiento (3-5 minutos)
 Camina lentamente para reducir el ritmo cardíaco.
 Realiza estiramientos estáticos de pecho, hombros y tríceps para ayudar a la recuperación. Mantén cada estiramiento durante 20-30 segundos.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Consejos y Precauciones para el Press de Banca
+Mantén la espalda ligeramente arqueada, pero no exageres. No dejes que la espalda baja se arquee excesivamente para evitar lesiones en la columna vertebral.
+
+2. Agarra la barra con las muñecas rectas, no dobladas hacia atrás, para evitar presión innecesaria en las muñecas. Evita un agarre demasiado estrecho para prevenir lesiones en los hombros.
+
+3. Aumenta el peso gradualmente a medida que ganas fuerza, pero sin comprometer la técnica. No levantes un peso que no puedas controlar con una buena forma.
+
+4. Usa un spotter (compañero de entrenamiento) si vas a levantar pesas pesadas. No intentes levantar más peso del que puedes manejar sin ayuda, especialmente si entrenas solo.
+
+5. Controla el movimiento en ambas fases: baja la barra de forma lenta y controlada hacia el pecho, sin dejar que rebote. Evita bajar la barra demasiado rápido, ya que puede generar un rebote en el pecho y dañar los músculos o articulaciones.
+
+6. Mantén los codos ligeramente doblados a 45 grados respecto a tu torso. No dejes que los codos se abran completamente hacia los lados porque esto pone tensión innecesaria en los hombros.
