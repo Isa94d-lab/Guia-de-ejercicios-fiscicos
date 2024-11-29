@@ -23,3 +23,17 @@
 5. Control de la velocidad e inclinación: La caminadora te permite ajustar la velocidad y la inclinación para personalizar tu entrenamiento, adaptándolo a tus necesidades.
 
 6. Menor impacto en las articulaciones: La superficie amortiguada de la caminadora reduce el impacto sobre las articulaciones, lo que la hace más suave que correr al aire libre en superficies duras.
+
+/ * RUTINA DE 20-30 MINUTOS * \
+
+1. Calentamiento (3-5 minutos)
+Camina a ritmo suave (4-5 km/h) para preparar el cuerpo.
+
+2. Ejercicio principal (15-20 minutos)
+Intervalos: Alterna entre correr y caminar.
+Correr (6-8 km/h) durante 1-2 minutos.
+Caminar (5-6 km/h) durante 1-2 minutos para recuperar.
+Repite durante 15-20 minutos, ajustando según tu nivel.
+
+3. Enfriamiento (3-5 minutos)
+Camina lentamente para reducir el ritmo cardíaco.
