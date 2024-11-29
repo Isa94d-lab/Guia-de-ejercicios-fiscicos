@@ -22,3 +22,26 @@
 
 5. Aumenta la fuerza funcional: Beneficioso para deportes de empuje y actividades cotidianas.
 Mejora la densidad ósea: Ayuda a fortalecer los huesos.
+
+/ * INSTRUCCIONES * \
+
+1. Calentamiento (3-5 minutos)
+Realiza un calentamiento general para preparar el cuerpo:
+
+2-3 minutos de movilidad articular (círculos con los brazos, estiramientos dinámicos de hombros y muñecas).
+
+2-3 minutos de press de banca con barra ligera (sin peso o con un peso muy bajo) para activar los músculos del pecho, hombros y tríceps.
+
+2. Ejercicio Principal (Intervalos de Press de Banca)
+
+Intervalos:
+
+Cargar peso moderado (que te permita hacer 6-8 repeticiones): Realiza 10 repeticiones.
+
+Descanso activo: 1-2 minutos de descanso, realizando movimientos suaves como rotaciones de brazos o estiramientos ligeros del pecho (sin dejar de moverte).
+
+Repite el ciclo durante 15-20 minutos, ajustando el peso según tu capacidad.
+
+3. Enfriamiento (3-5 minutos)
+Camina lentamente para reducir el ritmo cardíaco.
+Realiza estiramientos estáticos de pecho, hombros y tríceps para ayudar a la recuperación. Mantén cada estiramiento durante 20-30 segundos.
