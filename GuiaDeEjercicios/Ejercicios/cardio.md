@@ -37,3 +37,13 @@ Repite durante 15-20 minutos, ajustando según tu nivel.
 
 3. Enfriamiento (3-5 minutos)
 Camina lentamente para reducir el ritmo cardíaco.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Comienza despacio y aumenta gradualmente: Empieza con caminatas suaves y ve incrementando la velocidad o duración poco a poco.
+
+2. Mantén una buena postura: Espalda recta, hombros relajados y mirada al frente para evitar lesiones.
+
+3. Usa calzado adecuado: Zapatillas deportivas con buen soporte para proteger tus articulaciones.
+
+4. Escucha a tu cuerpo: Si te sientes cansado o incómodo, baja la velocidad o toma un descanso.
