@@ -43,3 +43,15 @@ Nada a un ritmo suave, enfócate en realizar brazadas largas y controladas. Resp
 5. Enfriamiento (3 minutos):
 
 Nada a ritmo muy suave, relaja los músculos. Realiza 1-2 largos de recuperación.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Mantén la postura correcta: Asegúrate de que tu cuerpo esté alineado y horizontal en el agua para reducir la resistencia y mejorar la eficiencia.
+
+2. Evita levantar la cabeza demasiado: Levantar mucho la cabeza para respirar puede generar tensión en el cuello y dificultar el avance. Gira solo lo necesario para tomar aire.
+
+3. Haz brazadas largas y controladas: Extiende los brazos lo más posible y realiza brazadas fluidas, evitando movimientos bruscos que puedan cansarte rápidamente.
+
+4. Respira de manera eficiente: Evita respirar cada vez que sacas la cabeza; trata de respirar cada 2 o 3 brazadas para mantener el ritmo y evitar la fatiga prematura.
+
+5. Mantén las piernas relajadas y rectas: No las hagas demasiado rígidas; realiza patadas suaves pero rápidas para no desperdiciar energía.
