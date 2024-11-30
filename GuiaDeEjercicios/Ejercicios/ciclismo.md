@@ -36,3 +36,15 @@ Reduce la resistencia y pedalea a un ritmo suave para recuperar el aliento y per
 4. Repite (4-6 ciclos):
 
 Alterna entre los períodos de alta resistencia y recuperación, dependiendo de tu nivel de fitness.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Comienza despacio: Si eres principiante, empieza con menos resistencia y aumenta gradualmente a medida que tu fuerza y resistencia mejoren.
+
+2. Mantén una postura adecuada: Asegúrate de que tu espalda esté recta y tu abdomen activado para evitar tensiones en la columna durante el ejercicio.
+
+3. No sobrecargues la resistencia: Aumenta la resistencia gradualmente para evitar lesiones en las piernas o las rodillas.
+
+4. Escucha a tu cuerpo: Si sientes dolor o molestias (más allá del esfuerzo normal), reduce la intensidad o toma un descanso.
+
+5. Hidrátate bien: La deshidratación puede afectar tu rendimiento, así que bebe agua antes, durante y después del ejercicio.
