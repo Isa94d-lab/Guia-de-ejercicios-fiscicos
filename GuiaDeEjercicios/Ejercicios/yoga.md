@@ -41,3 +41,15 @@ Cambia de lado y repite, colocando el pie derecho en el muslo interno izquierdo.
 5. Cierre (1-2 minutos):
 
 Baja las manos y coloca los pies juntos. Respira profundamente unas cuantas veces con los ojos cerrados para relajarte.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Enfoca tu mirada: Mira un punto fijo frente a ti para mantener el equilibrio.
+
+2. Evita apoyar el pie en la rodilla: Colócalo en el muslo interno o más abajo (como el tobillo), nunca sobre la articulación.
+
+3. Activa tu core: Contrae ligeramente los músculos abdominales para mayor estabilidad.
+
+4. No te frustres si pierdes el equilibrio: Es normal. Recupera la postura y sigue practicando.
+
+5. Respira profundamente: Mantén la calma y la concentración a través de una respiración lenta y consciente.
