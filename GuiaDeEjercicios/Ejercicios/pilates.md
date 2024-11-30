@@ -43,3 +43,15 @@ Inhala por 5 movimientos y exhala por 5 (completa 10 ciclos de respiración).
 Baja las piernas y el torso.
 
 Estírate con los brazos por encima de la cabeza.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Mantén el abdomen contraído para proteger la espalda baja durante todo el ejercicio.
+
+2. No levantes el cuello demasiado, evita la tensión. El esfuerzo debe venir del core, no de los músculos del cuello.
+
+3. No sobrecargues las piernas: Si las piernas estiradas a 45° son muy difíciles, comienza con ellas más flexionadas.
+
+4. Mantén los hombros relajados, evitando que se eleven hacia las orejas mientras bompeas los brazos.
+
+5. Controla la respiración: Inhala por 5 bombeos y exhala por 5, manteniendo un ritmo constante.
