@@ -46,3 +46,15 @@ Mantén la posición durante 15-30 segundos, respirando de forma controlada.
 Regreso:
 
 Exhala lentamente y baja el torso al suelo con control.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. No fuerces el arco de la espalda. Solo levanta el pecho hasta donde te sientas cómodo y sin dolor.
+
+2. Respira de manera controlada. Inhala al subir y exhala al regresar.
+
+3. Mantén las caderas en el suelo. Esto asegura que el estiramiento sea efectivo y evita sobrecargar la espalda baja.
+
+4. Relaja los hombros. No los subas hacia las orejas para evitar tensión en el cuello.
+
+5. Evita este ejercicio si tienes lesiones graves en la espalda o hernias discales. Consulta a un especialista en caso de dudas.
