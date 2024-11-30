@@ -40,3 +40,15 @@ Desde esa posición, impulsa tu cuerpo hacia arriba con un salto explosivo, exte
 3. Repeticiones:
 
 Realiza de 8 a 12 repeticiones si eres principiante, o de 12 a 20 repeticiones si buscas un mayor desafío.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Fortalecen todo el cuerpo. Trabajan piernas, core, glúteos y brazos, pero asegúrate de mantener una postura adecuada para evitar lesiones en la espalda.
+
+2. Mejoran la resistencia cardiovascular. Son ideales para elevar la frecuencia cardíaca, pero controla el ritmo si eres principiante o tienes problemas cardíacos.
+
+3. Aumentan la coordinación y la agilidad. Al combinar varios movimientos, mejoran tu control corporal; sin embargo, realiza cada fase con técnica para evitar torceduras.
+
+4. Queman muchas calorías en poco tiempo. Excelente para entrenamientos intensos, pero escucha a tu cuerpo y descansa si sientes mareo o agotamiento extremo.
+
+5. Se pueden adaptar a cualquier nivel. Puedes omitir el salto o la flexión si tienes problemas en las rodillas, hombros o muñecas.
