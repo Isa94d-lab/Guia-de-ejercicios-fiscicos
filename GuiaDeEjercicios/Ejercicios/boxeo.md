@@ -33,3 +33,15 @@
 5. Descanso (1 minuto).
 
 6. Enfriamiento (3 minutos): Caminata suave + estiramientos estáticos.
+
+/ * CONSEJOS Y PRECAUCIONES * \
+
+1. Mantén una buena postura: Mantén la espalda recta y la guardia elevada para proteger tu rostro mientras te mueves.
+
+2. Concéntrate en la técnica: Realiza cada golpe de manera controlada, asegurándote de rotar el torso correctamente y mantener los codos cerca del cuerpo.
+
+3. Calienta antes de empezar: Siempre realiza un buen calentamiento para evitar lesiones en las muñecas, hombros o piernas.
+
+4. Evita movimientos bruscos: Realiza los golpes de forma fluida y evita movimientos repentinos que puedan tensar los músculos o las articulaciones.
+
+5. Escucha a tu cuerpo: Si sientes dolor o molestias, disminuye la intensidad o haz una pausa. No te exijas demasiado.
